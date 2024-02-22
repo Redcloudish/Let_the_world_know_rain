@@ -2,3 +2,4 @@
 shinra tensei(almighty push)
 red clouds
  anime is the best 
+ saying it again
